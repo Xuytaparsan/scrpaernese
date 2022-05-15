@@ -1,0 +1,1 @@
+Vüsal xuy verər
